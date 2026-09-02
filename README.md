@@ -4,7 +4,7 @@ Soul/Sal.
 
 He/him. 
 
-## DNI if you're under 13 or over 18. 
+DNI if you're under 13 or over 18. 
 
 I'm usually in the Homestuck or Sonic area in Ponytown. 
 
